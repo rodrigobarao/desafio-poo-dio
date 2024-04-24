@@ -17,4 +17,4 @@ Se possível:<br>
 
 ------------
 
-Disponibilizado com ♥ por [Edielson Assis](https://www.linkedin.com/in/edielson-assis/ "Edielson Assis").
+Disponibilizado com ♥ por [Rodrigo Almeida](https://www.linkedin.com/in/rodrigoalmeida92/ "Rodrigo ALmeida").
